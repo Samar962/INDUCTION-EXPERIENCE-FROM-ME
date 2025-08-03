@@ -7,7 +7,9 @@
 -Collage Roll No:25104232
 
 #Day1 (RAI) 30 july2025
+
 ##08:30am to 10:15am
+
 ##Gurudwara sahib:we went to the gurudwara sahib to get the blessings of waheguru before sarting the journay at GNDEC.
 -After that we observed that the shape of Gurudwara is similar to ship.
 -In Punjabi,"Waheguru Naam Jahaz Hai, Chare SO Utra Par.
