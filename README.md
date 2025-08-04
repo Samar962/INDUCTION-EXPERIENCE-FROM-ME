@@ -33,7 +33,7 @@
 
 # Day2 (RAI)  1st july 2025
 
-##09:00am to 11:00am
+### 09:00am to 11:00am
 -At this time we reach the auditrium.
 -FRom 9:00 to 11:00 a lecture is taken by Priya Darshni Mam and the topic was "Universal Human Values" and she explained the topic briefly and everyone sitting in the audirtorium was listening her attentively. She describe that how i will spend time with friends and family
 -after that
@@ -53,3 +53,16 @@
 -after the test.
 
 I met with my friends And enjoy the time with them.
+
+# Day 3rd (RAI) 4th july 2025
+
+- The 3rd was Started by  a little speech of the HARPREET KAUR MAM. She asked the students to close his eyes for 5 minutes and relaxe their mind.
+
+### 08:30am to 09:30am
+The first lecture was taken by the CAUSMIC CLUB TEAM . The team member of that club gave many benefits of that club. Then the team memeber showed their instagram page. Here we says different type of reels Which was created by the student of that collage.By the CAUSMIC CLUB TEAM many program were organised and many of the students take part in that program.
+
+### 09:30am to 10:30am 
+- The second second leacture taken by a sir. Who gave the information about the sports car and how we can build a car. He had a execellent knowlage about the car. He also told that the weight of the car not greater than the 786kg.
+
+### 10:30am to 12:30am
+
