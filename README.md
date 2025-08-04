@@ -35,3 +35,11 @@
 
 ##11:30am to 12:30pm
 -A new opportunity arose thanks to Dr. Arvind Dhingrav Sir. He start intracting with students. He asked for the 7 girls and 7 boys to come on the stage. Determined not ao miss any opportunity. I joined them we played a team strategy game amd intoduced to peers. Winner team which was given a gift which was arranged by the sir.
+-After that there was a break time we went to canteen to have something and we have aa lot of time to talk with our friends.
+
+##01:300pm to 03:30pm
+-There was a test of english proficiency which was scheduled by the colage staffs members. According to roll number my seat was alloted in the workshop sem hall(2).
+-Ater that there was another test of mathematics which was also scheduled by the colaage staffs members. i was alloted same seat.
+
+-after the test.
+I met with my friends
