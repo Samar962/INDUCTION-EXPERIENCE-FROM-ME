@@ -52,17 +52,24 @@
 
 -after the test.
 
-I met with my friends And enjoy the time with them.
+-I met with my friends And enjoy the time with them.
 
 # Day 3rd (RAI) 4th july 2025
 
 - The 3rd was Started by  a little speech of the HARPREET KAUR MAM. She asked the students to close his eyes for 5 minutes and relaxe their mind.
 
 ### 08:30am to 09:30am
-The first lecture was taken by the CAUSMIC CLUB TEAM . The team member of that club gave many benefits of that club. Then the team memeber showed their instagram page. Here we says different type of reels Which was created by the student of that collage.By the CAUSMIC CLUB TEAM many program were organised and many of the students take part in that program.
+-The first lecture was taken by the CAUSMIC CLUB TEAM . The team member of that club gave many benefits of that club. Then the team memeber showed their instagram page. Here we says different type of reels Which was created by the student of that collage.By the CAUSMIC CLUB TEAM many program were organised and many of the students take part in that program.
 
 ### 09:30am to 10:30am 
-- The second second leacture taken by a sir. Who gave the information about the sports car and how we can build a car. He had a execellent knowlage about the car. He also told that the weight of the car not greater than the 786kg.
+- The second leacture taken by a sir. Who gave the information about the sports car and how we can build a car. He had a execellent knowlage about the car. He also told that the weight of the car not greater than the 786kg.
 
-### 10:30am to 12:30am
+### 10:30am to 12:30pm
+-The second leacture was taken by the PRIYA DARSHNI MAM and the topic was "RIGHT UNDERSATNDING","RELATIOSHIP","PHYSICAL FACALITY".
+-She described the all topic very breifly. Everyone sitting in auditorium listened her very attentively. She also described about Relationship toward our family and toward our family.
+
+### 12:30pm to 01:30pm
+
+
+
 
