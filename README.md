@@ -29,7 +29,7 @@
 
 ### 10:45am to 03:30am
 - After that our Principal sir<b>(SEHIJPAL SINGH)</b> motivated us to make the best use of this platform. The NSET Director introduced us to illustrious of this institution, emphassing its 68 years of  shaping brilliant minds 
-- the <B>(HARPREET KAUR MAM)</B> Mam also  motivated the students. each and every students listened the mam very attentively.
+- The <B>(HARPREET KAUR MAM)</B> Mam also  motivated the students. each and every students listened the mam very attentively.
 
 # Day2 (RAI)  1st july 2025
 
@@ -56,23 +56,23 @@
 
 # Day 3rd (RAI) 4th july 2025
 
-- The 3rd was Started by  a little speech of the <B>(HARPREET KAUR MAM)<B/>. She asked the students to close his eyes for 5 minutes and relaxe their mind.
+- The 3rd was Started by  a little speech of the <B>(HARPREET KAUR MAM)</B>   She asked the students to close his eyes for 5 minutes and relaxe their mind.
 
 ### 08:30am to 09:30am
-- The first lecture was taken by the <B>(CAUSMIC CLUB TEAM)</B> . The team member of that club gave many benefits of that club. Then the team memeber showed their instagram page. Here we says different type of reels Which was created by the student of that collage.By the CAUSMIC CLUB TEAM many program were organised and many of the students take part in that program.
+- The first lecture was taken by the <B>(CAUSMIC CLUB TEAM)</B> . The team member of that club gave many benefits of that club. Then the team memeber showed their instagram page. Here we says different type of reels Which was created by the student of that collage.By the <B>CAUSMIC CLUB TEAM)</B> many program were organised and many of the students take part in that program.
 
 ### 09:30am to 10:30am 
 - The second leacture taken by a sir. Who gave the information about the sports car and how we can build a car. He had a execellent knowlage about the car. He also told that the weight of the car not greater than the 786kg.
 
 ### 10:30am to 12:30pm
-- The second leacture was taken by the PRIYA DARSHNI MAM and the topic was "RIGHT UNDERSATNDING","RELATIOSHIP","PHYSICAL FACALITY".
+- The second leacture was taken by the <B>(PRIYA DARSHNI MAM)</B> and the topic was <B>("RIGHT UNDERSATNDING","RELATIOSHIP","PHYSICAL FACALITY")</B>.
 - She described the all topic very breifly. Everyone sitting in auditorium listened her very attentively. She also described about Relationship toward our family and toward our family.
 
-### 12:30pm to 01:30pm
+  ### 12:30pm to 01:30pm
 - This is the time of the lunch break. A breif escape for nourishment and relaxation.
 
   ### 01:30pm to 02:30pm
-  - In this time there was a P2P leacture. Which was conducted by the senior of that collage. IN this leacture she gave the knowlage about the c++ language. She gave the knowlage about What is the "VARIABLES", "PSEUDO CODE", etc.
+  - In this time there was a P2P leacture. Which was conducted by the senior of that collage. IN this leacture she gave the knowlage about the <B>(C++ LANGUAGE)</B>. She gave the knowlage about What is the <B>("VARIABLES", "PSEUDO CODE",)</B> etc.
 - In this leacture we preformed 4 program. Which was given by the senior of the collage.
   
   
