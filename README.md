@@ -69,11 +69,11 @@
 - She described the topic very breifly. Everyone sitting in auditorium listened her attentively. She also described about the Relationship toward our family and toward our friends.
 
  ### 12:30pm to 01:30pm
-- It's time of the lunch break. A breif escape for nourishment and relaxation.
+- It's time of  lunch break. A brief escape for nourishment and relaxation.
 
  ### 01:30pm to 02:30pm
-  - In this time there was a P2P leacture. Which was conducted by the senior of that collage. IN this leacture she gave the knowlage about the <B>C++ LANGUAGE</B>. She gave the knowlage about What is the <B>"VARIABLES", "PSEUDO CODE",</B> etc.
-- In this leacture we preformed 4 program. Which was given by the senior of the collage.
+  - At this time there was a P2P leactur. Which was conducted by the senior's of  collage. IN this leactur she gave the knowledge about the <B>C++ LANGUAGE</B>. She gave the knowledge about What is the <B>"VARIABLES", "PSEUDO CODE",</B> etc.
+- In this leactur we performed 4 programs. Which were given by the senior's of the collage.
   
   
 
