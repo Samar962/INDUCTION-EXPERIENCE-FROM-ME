@@ -35,7 +35,7 @@
 
 ### 09:00am to 11:00am
 - At this time we reach the auditrium.
-- FRom 9:00 to 11:00 a lecture is taken by <B>(PRIYA DARSHNI MAM)</B>and the topic was <B>(Universal Human Values)</B>and she explained the topic briefly and everyone sitting in the audirtorium was listening her attentively. She describe that how i will spend time with friends and family
+- FRom 9:00 to 11:00 a lecture is taken by <B>(PRIYA DARSHNI MAM)</B>and the topic was <B>(UNIVERSAL HUMAN VALUES)</B>and she explained the topic briefly and everyone sitting in the audirtorium was listening her attentively. She describe that how i will spend time with friends and family
 - after that
 
 ### 11:00am to 11:30am
