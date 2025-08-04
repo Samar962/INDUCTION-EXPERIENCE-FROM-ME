@@ -42,4 +42,4 @@
 -Ater that there was another test of mathematics which was also scheduled by the colaage staffs members. i was alloted same seat.
 
 -after the test.
-I met with my friends
+I met with my friends.
