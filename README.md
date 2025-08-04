@@ -1,72 +1,72 @@
 # Apna-Collage-Demo
 
--Name:Samar Thakur
+- Name:Samar Thakur
 
--Father's Name: Susham Kumar
+- Father's Name: Susham Kumar
 
--Branch:AI And ROBOTICS
+- Branch:AI And ROBOTICS
 
--Registration Number:6283172959
+- Registration Number:6283172959
 
--Mobile Number:6283272959
+- Mobile Number:6283272959
 
--Email ID:rajputsaab62831@gmail.com
+- Email ID:rajputsaab62831@gmail.com
 
--Collage Roll No:25104232
+- Collage Roll No:25104232
 
 
 # Day1 (RAI) 30 july2025
 
 ### 08:30am to 10:15am
 ##Gurudwara sahib:we went to the Gurudwara Sahib to get the blessings of waheguru before sarting the journey at GNDEC.
--After that we observed that the shape of Gurudwara is similar to ship.
--In Punjabi, we say that,"Waheguru Naam Jahaz Hai, Chare SO Utra Par.
+- After that we observed that the shape of Gurudwara is similar to ship.
+- In Punjabi, we say that,"Waheguru Naam Jahaz Hai, Chare SO Utra Par.
 
 ### 10:15am to 10:45am
--After that we had some REFRESHMENTS that were arranged by the collage staff for the STUDENTS.
--The break provided a good time to relax and a lot of time to talk with our friends.
--Then we went to the auditorium.
+- After that we had some REFRESHMENTS that were arranged by the collage staff for the STUDENTS.
+- The break provided a good time to relax and a lot of time to talk with our friends.
+- Then we went to the auditorium.
 
 ### 10:45am to 03:30am
--After that our Principal sir motivated us to make the best use of this platform. The NSET Director introduced us to illustrious of this institution, emphassing its 68 years of  shaping brilliant minds 
--the Harpreet Kaur Mam also  motivated the students. each and every students listened the mam very attentively.
+- After that our Principal sir motivated us to make the best use of this platform. The NSET Director introduced us to illustrious of this institution, emphassing its 68 years of  shaping brilliant minds 
+- the Harpreet Kaur Mam also  motivated the students. each and every students listened the mam very attentively.
 
 # Day2 (RAI)  1st july 2025
 
 ### 09:00am to 11:00am
--At this time we reach the auditrium.
--FRom 9:00 to 11:00 a lecture is taken by Priya Darshni Mam and the topic was "Universal Human Values" and she explained the topic briefly and everyone sitting in the audirtorium was listening her attentively. She describe that how i will spend time with friends and family
--after that
+- At this time we reach the auditrium.
+- FRom 9:00 to 11:00 a lecture is taken by Priya Darshni Mam and the topic was "Universal Human Values" and she explained the topic briefly and everyone sitting in the audirtorium was listening her attentively. She describe that how i will spend time with friends and family
+- after that
 
 ### 11:00am to 11:30am
--At this time the TEAM of SATYA SCHOLARSHIP PROGRAM came in the auditorium.
--The team of the program described the advantage of satya scholarship. After that they had taught us how we can enroll in this program.
+- At this time the TEAM of SATYA SCHOLARSHIP PROGRAM came in the auditorium.
+- The team of the program described the advantage of satya scholarship. After that they had taught us how we can enroll in this program.
 
 ### 11:30am to 12:30pm
--A new opportunity arose thanks to Dr. Arvind Dhingrav Sir. He start intracting with students. He asked for the 7 girls and 7 boys to come on the stage. Determined not ao miss any opportunity. I joined them we played a team strategy game amd intoduced to peers. Winner team which was given a gift which was arranged by the sir.
+- A new opportunity arose thanks to Dr. Arvind Dhingrav Sir. He start intracting with students. He asked for the 7 girls and 7 boys to come on the stage. Determined not ao miss any opportunity. I joined them we played a team strategy game amd intoduced to peers. Winner team which was given a gift which was arranged by the sir.
 -After that there was a break time we went to canteen to have something and we have aa lot of time to talk with our friends.
 
 ### 01:300pm to 03:30pm
--There was a test of english proficiency which was scheduled by the colage staffs members. According to roll number my seat was alloted in the workshop sem hall(2).
+- There was a test of english proficiency which was scheduled by the colage staffs members. According to roll number my seat was alloted in the workshop sem hall(2).
 -Ater that there was another test of mathematics which was also scheduled by the colaage staffs members. i was alloted same seat.
 
--after the test.
+- after the test.
 
--I met with my friends And enjoy the time with them.
+- I met with my friends And enjoy the time with them.
 
 # Day 3rd (RAI) 4th july 2025
 
 - The 3rd was Started by  a little speech of the HARPREET KAUR MAM. She asked the students to close his eyes for 5 minutes and relaxe their mind.
 
 ### 08:30am to 09:30am
--The first lecture was taken by the CAUSMIC CLUB TEAM . The team member of that club gave many benefits of that club. Then the team memeber showed their instagram page. Here we says different type of reels Which was created by the student of that collage.By the CAUSMIC CLUB TEAM many program were organised and many of the students take part in that program.
+- The first lecture was taken by the CAUSMIC CLUB TEAM . The team member of that club gave many benefits of that club. Then the team memeber showed their instagram page. Here we says different type of reels Which was created by the student of that collage.By the CAUSMIC CLUB TEAM many program were organised and many of the students take part in that program.
 
 ### 09:30am to 10:30am 
 - The second leacture taken by a sir. Who gave the information about the sports car and how we can build a car. He had a execellent knowlage about the car. He also told that the weight of the car not greater than the 786kg.
 
 ### 10:30am to 12:30pm
--The second leacture was taken by the PRIYA DARSHNI MAM and the topic was "RIGHT UNDERSATNDING","RELATIOSHIP","PHYSICAL FACALITY".
--She described the all topic very breifly. Everyone sitting in auditorium listened her very attentively. She also described about Relationship toward our family and toward our family.
+- The second leacture was taken by the PRIYA DARSHNI MAM and the topic was "RIGHT UNDERSATNDING","RELATIOSHIP","PHYSICAL FACALITY".
+- She described the all topic very breifly. Everyone sitting in auditorium listened her very attentively. She also described about Relationship toward our family and toward our family.
 
 ### 12:30pm to 01:30pm
 
