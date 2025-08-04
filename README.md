@@ -15,7 +15,7 @@ Apna-Collage-Demo
 -Collage Roll No:25104232
 
 
-<b>#Day1 (RAI) 30 july2025</b>
+# Day1 (RAI) 30 july2025
 
 ##08:30am to 10:15am
 ##Gurudwara sahib:we went to the Gurudwara Sahib to get the blessings of waheguru before sarting the journey at GNDEC.
@@ -31,7 +31,7 @@ Apna-Collage-Demo
 -After that our Principal sir motivated us to make the best use of this platform. The NSET Director introduced us to illustrious of this institution, emphassing its 68 years of  shaping brilliant minds 
 -the Harpreet Kaur Mam also  motivated the students. each and every students listened the mam very attentively.
 
-#Day2 (RAI)  1st july 2025
+# Day2 (RAI)  1st july 2025
 
 ##09:00am to 11:00am
 -At this time we reach the auditrium.
