@@ -15,7 +15,7 @@ Apna-Collage-Demo
 -Collage Roll No:25104232
 
 
-#Day1 (RAI) 30 july2025
+<B>#Day1 (RAI) 30 july2025</B>
 
 ##08:30am to 10:15am
 ##Gurudwara sahib:we went to the Gurudwara Sahib to get the blessings of waheguru before sarting the journey at GNDEC.
