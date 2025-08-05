@@ -78,10 +78,10 @@
   # Day4 (RAI) 5th july2025
 
   ### 01:30pm to 02:30pm
-  The first leactur was taken by the seniors of the collage and the topic was <b>INTRODUCTION OF THE COLLAGE)</b> . Seniors described about the many club. The head of the <b>NCC</b> club gave the information about the ncc. He told that there were many trip organised by the head of the <b>NCC</b>.
+-  The first leactur was taken by the seniors of the collage and the topic was <b>INTRODUCTION OF THE COLLAGE)</b> . Seniors described about the many club. The head of the <b>NCC</b> club gave the information about the ncc. He told that there were many trip organised by the head of the <b>NCC</b>.
 
   ### 02:30pm to 03:30pm
-  The second leactur was taken by mam <b>SHAFFA MAKKAR</b>. Who had a huge knowledge about the <b>MILLETS SUPER FOOD</B>. She told us about knowledge of millets and She described the benefits of diferent millets.
+-  The second leactur was taken by mam <b>SHAFFA MAKKAR</b>. Who had a huge knowledge about the <b>MILLETS SUPER FOOD</B>. She told us about knowledge of millets and She described the benefits of diferent millets.
   
 
 
