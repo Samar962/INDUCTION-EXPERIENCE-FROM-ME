@@ -72,7 +72,7 @@
 - It's time of  lunch break. A brief escape for nourishment and relaxation.
 
  ### 01:30pm to 02:30pm
-  - At this time there was a P2P leactur. Which was conducted by the senior's of  collage. IN this leactur she gave the knowledge about the <B>C++ LANGUAGE</B>. She gave the knowledge about What is the <B>"VARIABLES", "PSEUDO CODE",</B> etc.
+  - At this time there was a P2P leactur. Which was conducted by the senior's of  collage. In this leactur she gave the knowledge about the <B>C++ LANGUAGE</B>. She gave the knowledge about What is the <B>"VARIABLES", "PSEUDO CODE",</B> etc.
 - In this leactur we performed 4 programs. Which were given by the senior's of the collage.
   
   
