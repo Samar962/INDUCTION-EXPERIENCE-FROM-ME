@@ -31,7 +31,7 @@
 - After that our Principal sir <b>SEHIJPAL SINGH</b> motivated us to make the best use of this platform. The NSET Director introduced us to illustrious of this institution, emphassing its 68 years of  shaping brilliant minds 
 - The <B>HARPREET KAUR MAM</B> Mam also  motivated the students. each and every students listened the mam very attentively.
 
-# Day2 (RAI)  1st july 2025
+# Day2 (RAI)  1st August 2025
 
 ### 09:00am to 11:00am
 - At this time we reach the auditrium.
@@ -54,7 +54,7 @@
 
 - I met my friends And enjoyed the time with them.
 
-# Day 3rd (RAI) 4th july 2025
+# Day 3rd (RAI) 4th August 2025
 
 - The 3rd day was Started with a little speech given by <B>HARPREET KAUR MAM</B> .She asked the students to close their eyes for 5 minutes and relax their minds.
 
@@ -75,15 +75,19 @@
   - At this time there was a P2P leactur. Which was conducted by the senior's of  collage. In this leactur she gave the knowledge about the <B>C++ LANGUAGE</B>. She gave the knowledge about What is the <B>"VARIABLES", "PSEUDO CODE",</B> etc.
 - In this leactur we performed 4 programs. Which were given by the senior's of the collage.
 
-  # Day4 (RAI) 5th july2025
+  # Day 4th (RAI) 5th August 2025
 
   ### 01:30pm to 02:30pm
--  The first leactur was taken by the seniors of the collage and the topic was <b>INTRODUCTION OF THE COLLAGE)</b> . Seniors described about the many club. The head of the <b>NCC</b> club gave the information about the ncc. He told that there were many trip organised by the head of the <b>NCC</b>.
+-  The first lectur was taken by the seniors of the college and the topic was <b>INTRODUCTION OF THE COLLAGE</b> . Seniors described about the many club. The head of the <b>NCC</b> club gave the information about the ncc. He told that there were many trip organised by the head of the <b>NCC</b>.
 
   ### 02:30pm to 03:30pm
 -  The second leactur was taken by mam <b>SHAFFA MAKKAR</b>. Who had a huge knowledge about the <b>MILLETS SUPER FOOD</B>. She told us about knowledge of millets and She described the benefits of diferent millets.
   
+# Day 5th (RAI) 6th Agust 2025
 
+
+
+0
 
 
 
