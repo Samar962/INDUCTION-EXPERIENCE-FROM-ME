@@ -15,7 +15,7 @@
 - Collage Roll No:25104232
 
 
-# Day1 (RAI) 30 july2025
+# Day1 (RAI) 30 july 2025
 
 ### 08:30am to 10:15am
 - Gurudwara sahib:we went to the Gurudwara Sahib to get the blessings of waheguru before sarting the journey at GNDEC.
@@ -78,12 +78,21 @@
   # Day 4th (RAI) 5th August 2025
 
   ### 01:30pm to 02:30pm
--  The first lectur was taken by the seniors of the college and the topic was <b>INTRODUCTION OF THE COLLAGE</b> . Seniors described about the many club. The head of the <b>NCC</b> club gave the information about the ncc. He told that there were many trip organised by the head of the <b>NCC</b>.
+-  The first lecture was taken by the seniors of the college and the topic was <b>INTRODUCTION OF THE COLLAGE</b> . Seniors described about the clubs. The head of the <b>NCC</b> club gave the information about the ncc. He told that there were many trips organised by the head of  <b>NCC</b>.
 
   ### 02:30pm to 03:30pm
--  The second leactur was taken by mam <b>SHAFFA MAKKAR</b>. Who had a huge knowledge about the <b>MILLETS SUPER FOOD</B>. She told us about knowledge of millets and She described the benefits of diferent millets.
+-  The second lecture was taken by <b>SHAFFA MAKKAR</b> mam. she had a huge knowledge about the <b>MILLETS SUPER FOOD</B>. She told us about millets and She described the benefits of diferent millets.
   
 # Day 5th (RAI) 6th Agust 2025
+
+### 09:30am to 10:00am 
+-  The first lecture was taken by sir. Whose name was <b>Dr. PARMINDER SINGH</b> sir. he had a huge knowledge about the <b>STUDENT WELFARE</B>.
+
+### 10:00am to 11:00am
+- The lecture was taken by <b>Mr. Manpreet singh</b> sir. He had a huge knowlegde about the <b>FITNESS OF THE ENGINNERS</B>. He also described about the <b>GYM</b>. What is the benefits of the <b>GYM</b>. He explain very briefly abot this. He also explained about the many type of protiens like whey protiens etc. Many students putt their quesions in auditorium.
+
+### 11:00am to 12:30pm
+- The lecture was taken by the head of the <b>NCC</b>. Who was <b>BRIGADIER</B> Whose name was <b>P.S CHEEMA SIR</B>. He explained breifly about the NCC. He motivate the students to join NCC. Which was very helpful in future. NCC is helful for those students who join <b>ARMY AND AIR FORCE</b> in future. Many reels were displayed on the auditorium screen. So that number of students were join in <b>NCC</b> so that they fullfiled their dreams in life.
 
 
 
