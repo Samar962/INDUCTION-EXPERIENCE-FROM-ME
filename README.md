@@ -109,6 +109,13 @@
 - The first lecture was taken by the <b>MANJOT KAUR</b> mam. His knowledge in english was parisworthy. First she told us about the syllabus of english in the 1st year. She asked to the students to gave his/her introduction. Every student come on the teacher position and gave his/her introduction. She will be motivated to students to come on the stage and intoduced his/her in their own language.
 
 ### 11:30am to 12:30pm
+- It's break time. A brief escape for nourishment and relaxation.
+
+### 12:30pm to 02:00pm
+- Te lecture was taken by <b>LAKHVIR SINGH KHANA</b> sir. He was the incharge of <b>CML<b>. He gave information of CML to us.
+
+### 02:00pm to 03:30pm 
+- The lecture was taken by <b>Dr. JASVIR SINGH GREWAL</b>. He was the incharge of <b>NSS</b>. The full form of nss was <b> NATIONAL SERVICE SCHEME</b>. He told us a huge information about the nss. HE also motivated students by showing the differnt videos clips in the auditorium screen. After that Some senior's come on the stage they sang many shabad gaan im auditorium. Then' The two seniors come on the stage they show a activity which was performed by the senior's. Every students sitting in the auditorium enjoy them and laughed. Then the session was bind up.
 
 
 
