@@ -83,7 +83,7 @@
   ### 02:30pm to 03:30pm
 -  The second lecture was taken by <b>SHAFFA MAKKAR</b> mam. she had a huge knowledge about the <b>MILLETS SUPER FOOD</B>. She told us about millets and She described the benefits of diferent millets.
   
-# Day 5th (RAI) 6th Agust 2025
+# Day 5th (RAI) 6th August 2025
 
 ### 09:30am to 10:00am 
 -  The first lecture was taken by sir. Whose name was <b>Dr. PARMINDER SINGH</b> sir. He had a huge knowledge about <b>STUDENT WELFARE</B>.
@@ -101,7 +101,16 @@
 - The lecture was taken by senior's of college. They also shared many new information with us. Each students gave his introduction in this lecture. They gave us information about the <b>causmic club</b>.
 
 ### 02:30pm to 03:30pm
-- The lecture was taken by <b>JASPREET INGH</b> sir. He was the lecturer of the <b>PHYSICS</b>. He had a expert knowledge in physics.  He also explained about the <b>electromatives force, optical fiber, semiconductor, superconductor</b>.HE told us about the meaning and defination of word <b>physics</b>.  
+- The lecture was taken by <b>JASPREET INGH</b> sir. He was the lecturer of the <b>PHYSICS</b> . His knowledge in physics was parisworthy.  He also explained about the <b>electromatives force, optical fiber, semiconductor, superconductor</b>.He told us about the meaning and defination of word <b>physics</b>.  
+
+# Day 6th (RAI) 7th August 2025
+
+### 09:30am to 11:30am
+- The first lecture was taken by the <b>MANJOT KAUR</b> mam. His knowledge in english was parisworthy. First she told us about the syllabus of english in the 1st year. She asked to the students to gave his/her introduction. Every student come on the teacher position and gave his/her introduction. She will be motivated to students to come on the stage and intoduced his/her in their own language.
+
+### 11:30am to 12:30pm
 
 
+
+ 
 
