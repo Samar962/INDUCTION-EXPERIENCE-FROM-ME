@@ -92,16 +92,16 @@
 - The lecture was taken by <b>Mr. Manpreet singh</b> sir. He had a huge knowlegde about the <b>FITNESS OF A ENGINNERS</B>. He also described about the <b>GYM</b>. What are the benefits of the <b>GYM</b>. He explained about it briefly with us. He also explained about the types of protien like <b>WHEY PROTIENS</b>  etc. Many students asked their quesions in auditorium. 
 
 ### 11:00am to 12:30pm
-- The lecture was taken by the head of  <b>NCC</b>. He was <b>BRIGADIER</B> His name was <b>P.S CHEEMA </B>. He explained breifly about the NCC. He motivated the students to join NCC. Which will be very helpful in future. NCC will be helful for those students. Who wants to join <b>ARMY AND AIR FORCE</b> in future. Many reels were displayed on the auditorium screen. So that number of students were join in <b>NCC</b> so that they fullfiled their dreams in life.
+- The lecture was taken by the head of  <b>NCC</b>. He was <b>BRIGADIER</B> His name was <b>P.S CHEEMA </B>. He explained breifly about the NCC. He motivated the students to join NCC. Which will be very helpful in future. NCC will be helful for those students. Who wants to join <b>ARMY AND AIR FORCE</b> in future. Many reels were displayed on the auditorium screen.
 
 ### 12:30pm to 01:30pm
-- It's a time of the break. A brief escape for nourishment and relaxation.
+- It's break time . A brief escape for nourishment and relaxation.
 
 ### 01:30pm to 02:30pm
-- The lecture was taken by senior of college. They also shared many new information with us. Each students gave his interview in this lecture. She gave us information about the <b>causmic club</b>.
+- The lecture was taken by senior's of college. They also shared many new information with us. Each students gave his introduction in this lecture. They gave us information about the <b>causmic club</b>.
 
 ### 02:30pm to 03:30pm
-- The lecture was taken by <b>JASPREET INGH</b> sir. He was the teacher of the <b>PHYSICS</b>. He had a expert knowledge in physics.  He also explained about the <b>electromatives force, optical fiber, semiconductor, superconductor</b>.HE told us about the meaning and defination of word <b>physics</b>.  
+- The lecture was taken by <b>JASPREET INGH</b> sir. He was the lecturer of the <b>PHYSICS</b>. He had a expert knowledge in physics.  He also explained about the <b>electromatives force, optical fiber, semiconductor, superconductor</b>.HE told us about the meaning and defination of word <b>physics</b>.  
 
 
 
